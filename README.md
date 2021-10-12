@@ -1,0 +1,1 @@
+# Google'un 1998 yılında yayınlanan ilk versiyonu tasarlandı
